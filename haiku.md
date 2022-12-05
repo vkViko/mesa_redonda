@@ -11,7 +11,7 @@ Demasiado frío.
 fi-ji no ka-ze ya
 o-u-gi ni no-se-te
 e-do mi-ya-ge
-
-
-
+Con dos gotas de sangre y un rayo de sol,
+hizo Dios una bandera
+y se la dio a un español.
 Goodbye world!
